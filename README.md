@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ianzote18
+- 👀 I’m interested in how to make the world a best place.
+- 🌱 I’m currently learning programming and some languages. 
+- 💞️ I’m looking to collaborate on technologies and how to get start in this world.
+- 📫 How to reach me: ian.evangelista@escola.br.gov.br (email)
