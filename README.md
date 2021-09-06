@@ -3,7 +3,7 @@
 - 🌱 Cursando Ensino Médio pelo CEP
 - 🌎 Me preparando para mudar o mundo.
 - 📫 Me procure: ian.evangelista@escola.br.gov.pr (email)
-- 🙋‍♂️ Sou um Jesus Copy e Jesus Freak!
+- 🙋‍♂️ Sou um Jesus Copy e Jesus Freak!!
 
 <div>
   <a href="https://github.com/Ianzote18">
