@@ -2,7 +2,7 @@
 - 👀 Estudando Programação pela Alura
 - 🌱 Cursando Ensino Médio pelo CEP
 - 🌎 Me preparando para mudar o mundo.
-- 📫 Me procure: ian.evangelista@escola.br.gov.pr (email)
+- 📫 Me procure: ian.evangelista@escola.pr.gov.br (email)
 - 🙋‍♂️ Sou um Jesus Copy e Jesus Freak!!
 
 <div>
